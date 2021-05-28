@@ -23,7 +23,7 @@
 
 - 📫 How to reach me **18cs022@gmail.com**
 
-- 📄 Know about my experiences [https://mycertificate.blogspot.com/?m=1](https://mycertificate.blogspot.com/?m=1)
+- 📄 Know about my experiences [https://myinterncertificate.blogspot.com/?m=1](https://mycertificate.blogspot.com/?m=1)
 
 - ⚡ Fun fact **I am Funny**
 
